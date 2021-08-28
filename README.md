@@ -1,2 +1,0 @@
-# DoAnKTPM1
-DoAnKTPM1
